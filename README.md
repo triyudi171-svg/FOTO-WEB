@@ -1,0 +1,2 @@
+# FOTO-WEB
+HOSTING
